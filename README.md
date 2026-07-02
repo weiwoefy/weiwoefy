@@ -6,7 +6,6 @@
 <img width="23%" alt="flutter" src="https://github.com/user-attachments/assets/ec9e1a65-7d90-456f-b39b-eefbb5137f9a" />
 <img width="23%" alt="yay dandy" src="https://github.com/user-attachments/assets/766ef56c-99bf-40d1-933d-b69ef86711a6" />
 fav character.
-<img width="23%" alt="wow " src="https://github.com/user-attachments/assets/3a34bbff-1afc-4349-b5ea-cff9d26e6759" />
 <img width="23%" alt="wow " src="https://github.com/user-attachments/assets/5e66bee7-3876-435c-b3ca-fd9209917bc8" />
 <img width="23%" alt="ừm" src="https://github.com/user-attachments/assets/ba56adff-2dcc-48b5-9790-c7e7985dc1d4" />
 i have nothing to say im sorry.
