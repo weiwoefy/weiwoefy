@@ -29,7 +29,9 @@ about me :
 
 -caring and comfortable with errthin
 
--im not <img width="11%" alt="veee" src="https://github.com/user-attachments/assets/c6a10043-283b-4683-84a1-782a3b5e4a42" /> abt maths omfg
+-ViETNAMESE
+
+-and im not <img width="11%" alt="veee" src="https://github.com/user-attachments/assets/c6a10043-283b-4683-84a1-782a3b5e4a42" /> abt maths omfg
 
 
 -Fandoms im in :
@@ -43,6 +45,8 @@ LHMN talk abt 12 zodiacs uh idk how to explain :v
 +Dandy's World
 
 +Forsaken
+
++Countryhumans
 
 AND MORE i CANT REMEMBER 😢😢i😢😢im😳im😳😢😳😳sor😞😞😭😭ry😭😭😢u😭😓😓sorry😓
 
