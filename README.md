@@ -27,7 +27,7 @@ about me :
 
 -caring and comfortable with errthin
 
--im not <img width="13%" alt="veee" src="https://github.com/user-attachments/assets/c6a10043-283b-4683-84a1-782a3b5e4a42" /> abt maths omfg
+-im not <img width="10%" alt="veee" src="https://github.com/user-attachments/assets/c6a10043-283b-4683-84a1-782a3b5e4a42" /> abt maths omfg
 
 
 -Fandoms im in :
@@ -36,7 +36,7 @@ about me :
 
 LHMN talk abt 12 zodiacs uh idk how to explain :v
 
-<img width="38%" alt="12chđ" src="https://github.com/user-attachments/assets/65445909-20c1-426e-b91b-8e9ada5cd0c0" />  ok
+<img width="50%" alt="12chđ" src="https://github.com/user-attachments/assets/65445909-20c1-426e-b91b-8e9ada5cd0c0" />  ok
 
 +Dandy's World
 
